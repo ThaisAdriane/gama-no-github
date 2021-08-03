@@ -1,0 +1,1 @@
+Estou gostando bastande do curso, tem bastante conteúdo e as aulas são bem práticas. Apenas algumas explicações são rápidas demais pra quem é bem iniciante. 
